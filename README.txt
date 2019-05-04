@@ -1,0 +1,1 @@
+Verifica cavalli 04/05/2019
